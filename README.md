@@ -13,3 +13,4 @@
 <div align="center">ᵍᵘʸˢ ⁱᵐ ᵃᶜᵗᵘᵃˡˡʸ ⁿᵒᵗ ᵗʰᵃᵗ ᵖᵃᵗⁱᵉⁿᵗ ᵃˢ ᴵ ˢᵉᵉᵐ ᵖˡᵉᵃˢᵉ ᵈᵒⁿᵗ ᵗᵃᵏᵉ ⁱⁿˢᵖᵒ ᶠʳᵒᵐ ᶜᵒᵐᵉᵗᵗᵉ, ᵏⁿᵒʷ ⁱ ᶜᵃⁿᵗ ˢᵗᵒᵖ ᵗʰᵃᵗ ᵇᵘᵗ ᵗʳᵘˢᵗ ᵐᵉ ᵐᶠ ⁱ ʷⁱˡˡ ᵍᵉᵗ ᵐᵃᵈ ᵃᵗ ᵘ ᵃⁿᵈ ʸᵒᵘ'ˡˡ ᵇᵉ ᵇˡᵒᶜᵏᵉᵈ
 <div align="center">  ✦✦✦
 <div align="center">✧
+ ![](https://komarev.com/ghpvc/?username=Gweystars)
