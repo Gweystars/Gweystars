@@ -10,8 +10,10 @@
 <div align="center">⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆
 <div align="center"> ☀ 𝒫𝓁𝓈 𝓈𝒾𝑔𝓃 𝓂𝓎 :: https://gweystars.straw.page 𝓪𝓷𝓭 https://gweystars.atabook.org/ ✾ . 
 <div align="center"> ☆ 𝕎𝟚𝕀, 𝓓𝓝𝓒 , 𝐈 𝐥𝐨𝐯𝐞 𝐚𝐥𝐥 𝐨𝐟 𝐲𝐨𝐮 𝐰𝐡𝐨𝐦 𝐡𝐚𝐯𝐞 𝐜𝐨𝐦𝐩𝐥𝐢𝐦𝐞𝐧𝐭𝐞𝐝 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬! 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐬𝐨 𝐦𝐮𝐜𝐡 𝐟𝐨𝐫 𝐲𝐨𝐮𝐫 𝐬𝐮𝐩𝐩𝐨𝐫𝐭! ♥ . 
+<div align="center">  ✦✦✦
 <div align="center"> note 01 :: i sign atabooks!!! usually under the name :: the ourple eep and sometimes including (gweystars)
 <div align="center"> note 02 :: usually not all that open for c + h but guyss.. if its in my name please go ahead its probs in there because im feeling down and crave a hug HELP even purple sheep need some hugs occasionally ya know? 
+<div align="center"> note 03 :: yes, thats me on event server with patreon linked here it is :: ttps://www.patreon.com/c/gweystars. will always have that linked on the event server
 <div align="center">ᵍᵘʸˢ ⁱᵐ ᵃᶜᵗᵘᵃˡˡʸ ⁿᵒᵗ ᵗʰᵃᵗ ᵖᵃᵗⁱᵉⁿᵗ ᵃˢ ᴵ ˢᵉᵉᵐ ᵖˡᵉᵃˢᵉ ᵈᵒⁿᵗ ᵗᵃᵏᵉ ⁱⁿˢᵖᵒ ᶠʳᵒᵐ ᶜᵒᵐᵉᵗᵗᵉ, ᵏⁿᵒʷ ⁱ ᶜᵃⁿᵗ ˢᵗᵒᵖ ᵗʰᵃᵗ ᵇᵘᵗ ᵗʳᵘˢᵗ ᵐᵉ ᵐᶠ ⁱ ʷⁱˡˡ ᵍᵉᵗ ᵐᵃᵈ ᵃᵗ ᵘ ᵃⁿᵈ ʸᵒᵘ'ˡˡ ᵇᵉ ᵇˡᵒᶜᵏᵉᵈ
 <div align="center">  ✦✦✦
 <div align="center">✧
