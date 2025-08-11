@@ -2,6 +2,7 @@
 <p align="center">
   <img src=https://gallerypng.com/wp-content/uploads/2024/11/Sanrio-Cinnamoroll-Png-Picture.png/>
 </p>
+
 ![](https://komarev.com/ghpvc/?username=gweystars&color=blueviolet&label=★sheepies+counted)
 <div align="center">⋆ 𝓗𝓘𝓘𝓘 𝓽𝓱𝓮 𝓷𝓪𝓶𝓮𝓼 𝓖𝔀𝓮𝔂!! 𝓒𝓸𝓶𝓮 𝓰𝓮𝓽 𝓽𝓸 𝓴𝓷𝓸𝔀 𝓶𝓮 ! ♫
 <div align="center">⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆
