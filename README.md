@@ -2,6 +2,11 @@
 <p align="center">
   <img src=https://www.pngall.com/wp-content/uploads/13/Cinnamoroll-PNG-Images-180x180.png>
 </p>
+ 
+<p align="center">
+  <img src=https://64.media.tumblr.com/ae6a0da4f42262483bf6f7ce7611f81d/9b9a83180f3157f5-4f/s640x960/80246aacbc1af3ba3faac7ac30bd68a76b9d761f.pnj>
+</p>
+ 
 
 ![](https://komarev.com/ghpvc/?username=gweystars&color=blueviolet&label=★sheepies+counted)
 <div align="center">⋆ 𝓗𝓘𝓘𝓘 𝓽𝓱𝓮 𝓷𝓪𝓶𝓮𝓼 𝓖𝔀𝓮𝔂!! 𝓒𝓸𝓶𝓮 𝓰𝓮𝓽 𝓽𝓸 𝓴𝓷𝓸𝔀 𝓶𝓮 ! ♫
