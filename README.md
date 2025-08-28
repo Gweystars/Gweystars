@@ -4,7 +4,7 @@
 </p>
  
 <p align="center">
-  <img src=https://64.media.tumblr.com/ae6a0da4f42262483bf6f7ce7611f81d/9b9a83180f3157f5-4f/s640x960/80246aacbc1af3ba3faac7ac30bd68a76b9d761f.pnj>
+  <img src=https://scontent-ams4-1.xx.fbcdn.net/v/t1.15752-9/540029999_1019518170138825_5306832045334581734_n.png?_nc_cat=109&ccb=1-7&_nc_sid=0024fc&_nc_ohc=m5kbXZaIg68Q7kNvwFdGNpt&_nc_oc=AdlUxWR4E71-uAf5SUha9sGkTWBlHRuvlf56CGt6lErOyzG2wlkHp69iHzjyp5P-gTk&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-ams4-1.xx&oh=03_Q7cD3AHy9j5vWOs8f9XL1ABO3YIP3FDYeEKO-4fBpAf4XkzDtQ&oe=68D837C9>
 </p>
  
 ![](https://komarev.com/ghpvc/?username=gweystars&color=blueviolet&label=★sheepies+counted)
