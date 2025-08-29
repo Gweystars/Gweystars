@@ -15,6 +15,9 @@
 <div align="center"> ✂ 𝓢𝓸𝓹𝓻𝓪𝓷𝓸 '☾ ​🇦​​🇸​​🇵​​🇮​​🇷​​🇮​​🇳​​🇬​ ​🇱​​🇦​​​​🇼​​🇾🇪​​🇷​ + ​🇦​​🇨​​🇹​​🇷​​🇪​​🇸​​🇸​ ✿ , 𝙏𝙃𝙀 𝙆3 𝙎𝙏𝘼𝙉!! ♥ 𝚜𝚎𝚊𝚕 + 𝚜𝚑𝚎𝚎𝚙 𝚕𝚘𝚟𝚎𝚛 * .
 <div align="center"> 𝚠𝚛𝚒𝚝𝚎𝚛 𝚘𝚏 𝚜𝚝𝚘𝚛𝚒𝚎𝚜 𝚊𝚗𝚍 𝚜𝚘𝚗𝚐𝚜 ! + 𝚊𝚛𝚝𝚒𝚜𝚝 𝚊𝚗𝚍 𝚜𝚌𝚛𝚊𝚙𝚋𝚘𝚘𝚔𝚎𝚛
 <div align="center">⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆
+  <p align="center">
+  <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756488167> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489203> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489762> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756490242>
+</p>
 <div align="center"> ☆ 𝕎𝟚𝕀, 𝓓𝓝𝓒 , 𝐈 𝐥𝐨𝐯𝐞 𝐚𝐥𝐥 𝐨𝐟 𝐲𝐨𝐮 𝐰𝐡𝐨𝐦 𝐡𝐚𝐯𝐞 𝐜𝐨𝐦𝐩𝐥𝐢𝐦𝐞𝐧𝐭𝐞𝐝 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬! 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐬𝐨 𝐦𝐮𝐜𝐡 𝐟𝐨𝐫 𝐲𝐨𝐮𝐫 𝐬𝐮𝐩𝐩𝐨𝐫𝐭! ♥ . 
 <div align="center">  ✦✦✦
 <div align="center"> note 01 :: i sign atabooks!!! usually under the name :: the ourple eep and sometimes including (gweystars)
