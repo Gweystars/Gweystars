@@ -16,7 +16,7 @@
 <div align="center"> 𝚠𝚛𝚒𝚝𝚎𝚛 𝚘𝚏 𝚜𝚝𝚘𝚛𝚒𝚎𝚜 𝚊𝚗𝚍 𝚜𝚘𝚗𝚐𝚜 ! + 𝚊𝚛𝚝𝚒𝚜𝚝 𝚊𝚗𝚍 𝚜𝚌𝚛𝚊𝚙𝚋𝚘𝚘𝚔𝚎𝚛
 <div align="center">⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆
   <p align="center">
-  <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756488167> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489203> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489762> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756490242>
+  <img src=https://scontent-ams4-1.xx.fbcdn.net/v/t1.15752-9/540102739_760261976754332_2640829273902944188_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=0024fc&_nc_ohc=nfBFGoLQVMcQ7kNvwG2ijaS&_nc_oc=Adm3ofuVRHkQTfOtgzCvz-MOlDiD9juv_Bbn029Ob2B4GJjm-WFlWivFGqP4ueh91Cg5pzH7QTTOZU33efnVISVK&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-ams4-1.xx&oh=03_Q7cD3AELxXBkbU9OV-kty82Z38HydnCmRBAhRsnO46y3Gzrf1w&oe=68D9C11D> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489203> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489762> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756490242>
 </p>
 <div align="center"> ☆ 𝕎𝟚𝕀, 𝓓𝓝𝓒 , 𝐈 𝐥𝐨𝐯𝐞 𝐚𝐥𝐥 𝐨𝐟 𝐲𝐨𝐮 𝐰𝐡𝐨𝐦 𝐡𝐚𝐯𝐞 𝐜𝐨𝐦𝐩𝐥𝐢𝐦𝐞𝐧𝐭𝐞𝐝 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬! 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐬𝐨 𝐦𝐮𝐜𝐡 𝐟𝐨𝐫 𝐲𝐨𝐮𝐫 𝐬𝐮𝐩𝐩𝐨𝐫𝐭! ♥ . 
 <div align="center">  ✦✦✦
