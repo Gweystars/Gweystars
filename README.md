@@ -23,5 +23,5 @@
 <div align="center">  ✦✦✦
 <div align="center">✧
 <p align="center">
-  <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756488167>
+  <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756488167> <img src=https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756489203>
 </p>
