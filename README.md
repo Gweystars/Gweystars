@@ -4,7 +4,7 @@
 </p>
  
 <p align="center">
-<img src=https://imgur.com/a/tralala-hN8QHYz#cov0zW5>
+<img src=https://i.imgur.com/cov0zW5_d.webp?maxwidth=760&fidelity=grand>
 
 </p>
  
