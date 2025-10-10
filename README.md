@@ -4,7 +4,7 @@
 </p>
  
 <p align="center">
-  <img src=<img width="800" height="600" alt="comette time! (1) (1)" src="https://github.com/user-attachments/assets/4185aca7-1da2-4d2b-bbcb-4e80e51cc79d" />
+  <img src=https://imgur.com/a/hN8QHYz>
 >
 </p>
  
