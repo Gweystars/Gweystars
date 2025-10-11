@@ -25,4 +25,3 @@
 <p align="center">
 <img src=https://i.imgur.com/cov0zW5_d.webp?maxwidth=760&fidelity=mini>
 </p>
-pls look at [herd-of-clouds]{https://straw.page/draw?bio=the-herd-of-clouds}
