@@ -24,9 +24,5 @@
 <div align="center">  ✦✦✦
 <div align="center">✧
 <p align="center">
-  <img src=https://scontent-ams2-1.xx.fbcdn.net/v/t1.15752-9/541300826_3689815401312501_6783173462262275487_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=0024fc&_nc_ohc=mA8DsrfAxXAQ7kNvwE11Mtf&_nc_oc=Adm9-kMnFmw8qoqlPeLSxRZg6RtkrOMy6OwicnvjSJYbfoTudWw0ttpuS5i9FmpDQ7EczghYOKumSRfU1yebsHgj&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-ams2-1.xx&oh=03_Q7cD3AH3Y_wgpsQpbVB9C-xPlak7REjxrlLAp83BpJKsJ03VXg&oe=68D9A52A> <img src=https://scontent-ams4-1.xx.fbcdn.net/v/t1.15752-9/541250754_1236593424889692_1314143500651791523_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=KKg0Z5MnNwQQ7kNvwFVaq-x&_nc_oc=AdlKa2-XcMkM2AbQ2LgzGUTIqeEMxETgVapOcZvqjz1GJAjjvatiHoxQ5p9c05Uy1QMBoqP0CqjSbCxkvSY9KssU&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-ams4-1.xx&oh=03_Q7cD3AGZDjvkqZ9VD45BOyS1B6WXiN-88OThQqbf9Q6m5ukPPg&oe=68D9B5B8> <img src=https://scontent-ams2-1.xx.fbcdn.net/v/t1.15752-9/541164692_1103675548520514_6079825941324090705_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=0024fc&_nc_ohc=nnrtX3YMFSsQ7kNvwHZePjU&_nc_oc=AdntD1l9H1PBx5cpEf5sI8SO2sO7hUkbq1VdL8bKSDdl4ddSGW8w_ATnwaORarS5pMfmV0oyOJglRwyZj0XcFDwA&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-ams2-
-  
-  
-  <p align="center">
 <img src=https://i.imgur.com/cov0zW5_d.webp?maxwidth=760&fidelity=mini>1.xx&oh=03_Q7cD3AH5FDSS6WicbjvuRLbN_5qjoxcT-Sbz1fooed4ZKIojWw&oe=68D9B090>
 </p>
