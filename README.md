@@ -2,7 +2,7 @@
 <p align="center">
   <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9865a25b-3dcf-4076-ad61-b1e7a6a31980/dad0g18-983b5110-6913-4a35-83d3-64abdaa2b4c9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzk4NjVhMjViLTNkY2YtNDA3Ni1hZDYxLWIxZTdhNmEzMTk4MFwvZGFkMGcxOC05ODNiNTExMC02OTEzLTRhMzUtODNkMy02NGFiZGFhMmI0YzkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.0cLxD2dAa4RzKFPfA_G8eIWr2kzjRG25KRSTxbksYQw>
 </p>
-<div align="center"> [here](#place-2)
+<div align="center">[here](https://straw.page/draw?bio=the-herd-of-clouds)
 
 ![](https://komarev.com/ghpvc/?username=gweystars&color=blueviolet&label=★sheepies+counted)
 <div align="center">⋆ 𝓗𝓘𝓘𝓘 𝓽𝓱𝓮 𝓷𝓪𝓶𝓮𝓼 𝓖𝔀𝓮𝔂!! 𝓒𝓸𝓶𝓮 𝓰𝓮𝓽 𝓽𝓸 𝓴𝓷𝓸𝔀 𝓶𝓮 ! ♫
