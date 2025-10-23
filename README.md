@@ -20,5 +20,5 @@
 <div align="center">ᵍᵘʸˢ ⁱᵐ ᵃᶜᵗᵘᵃˡˡʸ ⁿᵒᵗ ᵗʰᵃᵗ ᵖᵃᵗⁱᵉⁿᵗ ᵃˢ ᴵ ˢᵉᵉᵐ ᵖˡᵉᵃˢᵉ ᵈᵒⁿᵗ ᵗᵃᵏᵉ ⁱⁿˢᵖᵒ ᶠʳᵒᵐ ᶜᵒᵐᵉᵗᵗᵉ, ᵏⁿᵒʷ ⁱ ᶜᵃⁿᵗ ˢᵗᵒᵖ ᵗʰᵃᵗ ᵇᵘᵗ ᵗʳᵘˢᵗ ᵐᵉ ᵐᶠ ⁱ ʷⁱˡˡ ᵍᵉᵗ ᵐᵃᵈ ᵃᵗ ᵘ ᵃⁿᵈ ʸᵒᵘ'ˡˡ ᵇᵉ ᵇˡᵒᶜᵏᵉᵈ
 <div align="center">  ✦✦✦
 <div align="center">✧
-<p align="center">
+<p align="center"><img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b796f4d0-fc2c-43f4-ae33-4e450c5f60bf/da37vlo-9d8b5bde-283b-4823-bb41-ac17b5fe0bc3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iNzk2ZjRkMC1mYzJjLTQzZjQtYWUzMy00ZTQ1MGM1ZjYwYmYvZGEzN3Zsby05ZDhiNWJkZS0yODNiLTQ4MjMtYmI0MS1hYzE3YjVmZTBiYzMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Wes8xwJ-DHew7J1t7uoQ9zYx7oh9PXH5uFt9SIGaAc4> 
 </p>
