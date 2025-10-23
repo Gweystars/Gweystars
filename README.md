@@ -4,7 +4,6 @@
 </p>
 <div align="center"> 
 ![](https://komarev.com/ghpvc/?username=gweystars&color=blueviolet&label=★sheepies+counted)
-<img src=https://i.imgur.com/cov0zW5_d.webp?maxwidth=500&fidelity=mini>
 <div align="center">⋆ 𝓗𝓘𝓘𝓘 𝓽𝓱𝓮 𝓷𝓪𝓶𝓮𝓼 𝓖𝔀𝓮𝔂!! 𝓒𝓸𝓶𝓮 𝓰𝓮𝓽 𝓽𝓸 𝓴𝓷𝓸𝔀 𝓶𝓮 ! ♫
 <div align="center">⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆⋆
 <div align="center"> - ☁ Gwey , 𝐂𝐨𝐦𝐞𝐭𝐭𝐞 ' ✧ ⋆
