@@ -20,5 +20,5 @@
 <div align="center">  ✦✦✦
 <div align="center">✧
 <p align="center">
-<img src=https://i.imgur.com/cov0zW5_d.webp?maxwidth=760&fidelity=mini>
+<img src=https://i.imgur.com/cov0zW5_d.webp?maxwidth=500&fidelity=mini>
 </p>
